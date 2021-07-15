@@ -1,1 +1,3 @@
 Once upon a time their was a Monkey live on the mango tree.In the same forest thir was a crocodile and his wife....
+one day the crocodile came near the mango tree and ask monkey for the mango and monkey willingly gave mangoes.
+sone they became friends-----
