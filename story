@@ -1,3 +1,6 @@
 Once upon a time their was a Monkey live on the mango tree.In the same forest thir was a crocodile and his wife....
 one day the crocodile came near the mango tree and ask monkey for the mango and monkey willingly gave mangoes.
 sone they became friends-----
+one day monkey gave some mango to the crocodile's wife .When she ate them ,she liked it a lot but was more greedy 
+ad thought if the mongoes are so sweet thn the monkey's heart would be much sweeter and plans to kill the monkey....
+
